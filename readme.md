@@ -1,7 +1,7 @@
-topo.yo.27.mathers@gmail.com
-alan_fanpes@hotmail.com
-glezgarciasilvia@gmail.com
-vkgonzalez@hotmail.com
-gpe.ruizangulo@gmail.com
-manuelchavezreynoso@gmail.com
-caps_98@hotmail.com
+Juan Miguel 
+Alan Nungaray 
+Silvia Gonzalez 
+Victoria Gonzalez 
+Guadalupe Ruiz 
+Manuel Chavez Reynoso
+Carlos Padilla 
